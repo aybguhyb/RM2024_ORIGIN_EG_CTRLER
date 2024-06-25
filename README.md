@@ -2,7 +2,7 @@
 
 ###### 起源Origin
 
-@aybGuhyb(Q:1365293199，B站同名)
+@aybGuhyb(B站同名)
 
 @王宇涵
 
